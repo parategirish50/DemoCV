@@ -1,4 +1,4 @@
-# Sam
+# youremail@outlook.com
 
 LA, USA | youremail@gmail.com | 1234567890 | [LinkedIn](http://www.linkedin.com) | [CV Website](http://www.linkedin.com)
 
